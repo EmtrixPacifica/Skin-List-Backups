@@ -8,6 +8,8 @@ Twitch: https://twitch.tv/Emtrix
 ![](https://cdn.discordapp.com/attachments/718631647792070686/826161472077299712/screenshot551.jpg)
 # [10 August 2020 - ? (ADHD Clean)](https://axa.s-ul.eu/J26nBLq3)
 ![](https://i.imgur.com/r91NT0d.png)
+# [04 Feburary 2021 (Aesthetic - Ring V2 2021)](https://axa.s-ul.eu/J26nBLq3)
+![](https://i.imgur.com/uDfB9Ky.png)
 # [09 March 2020 - ? (Flask - SSHD)](https://axa.s-ul.eu/lmF8QjYZ)
 ![](https://cdn.discordapp.com/attachments/718631647792070686/826162071476764682/screenshot523.jpg)
 # [21 March 2019 - ? (ADHD)](https://axa.s-ul.eu/cq31X0Bz)
