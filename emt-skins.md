@@ -1,6 +1,6 @@
 # Backup osu! Skin Collection 
 
-Last updated March 29, 2021. Work-in-progress ~ ~ ~ 
+Last updated July 9, 2021. Work-in-progress ~ ~ ~ 
 
 Twitch: https://twitch.tv/Emtrix
 
