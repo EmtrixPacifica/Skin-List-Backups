@@ -4,9 +4,9 @@ Last updated July 9, 2021. Work-in-progress ~ ~ ~
 
 Twitch: https://twitch.tv/Emtrix
 
-# [3 Janurary 2020 - ? (Bubblegum)](https://www.dropbox.com/s/cdzjxcke90sicro/Emtrix%20-%20Bubblegum.osk?dl=1)
+# [3 Janurary 2020 - ? (Bubblegum)](https://www.dropbox.com/s/90jhynxy4c9bxmg/Emtrix%20-%20Bubblegum.osk?dl=1)
 ![](https://cdn.discordapp.com/attachments/718631647792070686/826161472077299712/screenshot551.jpg)
-# [10 August 2020 - ? (ADHD Clean)](https://www.dropbox.com/s/ra7xqvl4mk61i26/ADHD%20Skin.osk?dl=1)
+# [10 August 2020 - ? (ADHD Clean)](https://www.dropbox.com/s/l8g5s21b6tdcgtc/Emtrix%20-%20ADHD%20Clean.osk?dl=1)
 ![](https://i.imgur.com/r91NT0d.png)
 # [04 Feburary 2021 (Cotton Candy)](https://www.dropbox.com/s/zrsy0g30816fdqx/Emtrix%20-%20Cotton%20Candy.osk?dl=1)
 ![](https://i.imgur.com/uDfB9Ky.png)
