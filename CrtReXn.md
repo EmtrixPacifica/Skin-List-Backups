@@ -1,8 +1,8 @@
-+# Backup osu! Skin Collection 
+Backup osu! Skin Collection 
 
 Last updated Dec 31, 2021. Work-in-progress
 
-Twitch: https://twitch.tv/crtrexn, https://twitch.tv/Emtrix
+Twitch: , https://twitch.tv/Emtrix[CrtReXn's Twitch](https://twitch.tv/crtrexn/)
 
 # [8 December 2021 - ? (CrtReXn | December 2021)](https://drive.google.com/file/d/1BLLAdP6eOSwaAChpf4sl04gVnubIjMxV/edit)
 ![](https://i.imgur.com/03f6sS9.jpeg)
