@@ -2,7 +2,9 @@ Backup osu! Skin Collection
 
 Last updated Dec 31, 2021. Work-in-progress
 
-Twitch: [CrtReXn's Twitch](https://twitch.tv/crtrexn/)
+[CrtReXn's Twitch](https://twitch.tv/crtrexn/)
+
+[Emtrix's Twitch](https://twitch.tv/Emtrix/)
 
 # [8 December 2021 - ? (CrtReXn | December 2021)](https://drive.google.com/file/d/1BLLAdP6eOSwaAChpf4sl04gVnubIjMxV/edit)
 ![](https://i.imgur.com/03f6sS9.jpeg)
