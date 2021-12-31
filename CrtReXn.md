@@ -12,5 +12,5 @@ Last updated Dec 31, 2021. Work-in-progress
 ![](https://i.imgur.com/Bnx5C0L.jpeg)
 # [CrtReXn | HDDT (8 December 2021 - ?)](https://axa.s-ul.eu/6BrohJK7)
 ![](https://i.imgur.com/CayyFkU.png)
-# [CrtReXn | SSHD (25/26 - ?)](https://axa.s-ul.eu/6BrohJK7)
-![]https://i.imgur.com/smjW3NB.jpeg
+# [CrtReXn | SSHD (25/26 December 2021 - ?)](https://axa.s-ul.eu/6BrohJK7)
+![](https://i.imgur.com/smjW3NB.jpeg)
