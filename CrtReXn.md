@@ -8,7 +8,7 @@ Last updated Dec 31, 2021. Work-in-progress
 
 # [(CrtReXn | Palette) 4 December 2021 - ?](https://drive.google.com/file/d/1BLLAdP6eOSwaAChpf4sl04gVnubIjMxV/edit)
 ![](https://i.imgur.com/03f6sS9.jpeg)
-# [((CrtReXn | Dec 2021) 8 December 2021 - ? ](http://puu.sh/G4xpC/20a6e60de2.osk)
+# [(CrtReXn | Dec 2021) 8 December 2021 - ? ](http://puu.sh/G4xpC/20a6e60de2.osk)
 ![](https://i.imgur.com/Bnx5C0L.jpeg)
 # [27 Jun 2020 (Axarious 80%, 80% Solid)](https://axa.s-ul.eu/6BrohJK7)
 ![](https://i.imgur.com/fDSvk1S.jpg)
